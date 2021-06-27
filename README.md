@@ -1,0 +1,1 @@
+The Simon Classic Game is an easy game to play where players get to watch, remember and repeat the exact sequence they saw, testing their memory skill and spatial awareness.<br> Featuring exciting lights and sounds, this fast-paced game can be played almost anywhere.
